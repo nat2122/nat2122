@@ -8,4 +8,4 @@
 - HTML - Learning
 - 📫 How to reach me: Email works best! 
 - 💞 Pronouns: she/her
-- 🧸: 17 
+- 🧸 Level: 17 
