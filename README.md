@@ -1,6 +1,6 @@
 - 👋 Heyy it's Nat (づ ◕‿◕ )づ
 - 🏫 High School Student/beginner programmer
-- 🛩️ High School engineering intern @ Textron Aviation - wrote KompDef files for T6 & B300 King Air 
+- 🛩️ High School engineering intern @ Textron Aviation
 - 🛠️ 2583/2881  build member and Impact team lead
 - 👩‍💻 Languages:
 - Java
