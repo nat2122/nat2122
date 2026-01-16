@@ -1,5 +1,6 @@
 - Level 19 ⋆˚꩜.ᐟ 
-- 🏫 UT Austin - Aerospace engineering
+-  UT Austin - Aerospace engineering ᯓ ✈︎ ⋆°•☁︎
+-  ˗ˏˋ ✞ ˎˊ˗
 
 
 
